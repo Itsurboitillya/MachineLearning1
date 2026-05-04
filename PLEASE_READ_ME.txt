@@ -1,1 +1,1 @@
-I think IF u can remember what we were suppose to do just check up
+I think IF u can't remember what we were suppose to do just check up
